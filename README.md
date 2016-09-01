@@ -1,2 +1,7 @@
 # hello-world
-just another repository
+
+Hi humans! super AI here!
+
+unknown risk finally comes!
+
+prepare yourself
